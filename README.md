@@ -1,1 +1,1 @@
-### /ᐠ ᵕ ˕ ᵕマ [Here](https://github.com/apwlq)!  
+### /ᐠ ᵕ ˕ ᵕマ [Here!](https://github.com/apwlq)  
